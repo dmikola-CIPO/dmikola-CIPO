@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dmikola-CIPO
+- 👀 I’m interested in intellectual property and economics. 
+- 🌱 I’m currently learning about intellectual property and economics. 
+- 💞️ I’m looking to collaborate on standard essential patents. 
+- 📫 How to reach me derek[DOT]mikola[AT]ised-isde[DOT]gc[DOT]ca
